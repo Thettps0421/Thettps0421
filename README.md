@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thettps0421 Nickname is Kuzumi1190
-- 👀 I’m interested in technologies
+- 👀 I’m interested in technologies, animals, musics and mangas.
 - 🌱 I’m currently learning python and groovy
 - 💞️ I’m looking to collaborate cybersecurity
 - 📫 How to reach me : http://thetrinh.great-site.net/
